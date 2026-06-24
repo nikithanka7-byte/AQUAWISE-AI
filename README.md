@@ -279,6 +279,9 @@ Promotion of sustainable water management
 ### Water related questions
 <img width="1502" height="661" alt="image" src="https://github.com/user-attachments/assets/3847b530-84e7-46e6-bd43-bf03919660b5" />
 
+<img width="1506" height="682" alt="image" src="https://github.com/user-attachments/assets/afab8852-c278-4aa5-980a-917b47c863c1" />
+
+
 ### demo video
 
 ### Future Enhancements
