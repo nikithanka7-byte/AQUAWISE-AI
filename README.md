@@ -275,6 +275,7 @@ Promotion of sustainable water management
 ### FAQ session
 ### Normal question
 <img width="1187" height="396" alt="WhatsApp Image 2026-06-23 at 9 39 56 AM" src="https://github.com/user-attachments/assets/8c0b1c17-c729-4ba3-bbdb-7e158d27a7d0" />
+
 ### Water related questions
 <img width="1502" height="661" alt="image" src="https://github.com/user-attachments/assets/3847b530-84e7-46e6-bd43-bf03919660b5" />
 
