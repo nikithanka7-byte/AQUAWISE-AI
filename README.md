@@ -273,7 +273,10 @@ Promotion of sustainable water management
 <img width="1522" height="763" alt="WhatsApp Image 2026-06-23 at 9 39 28 AM (1)" src="https://github.com/user-attachments/assets/430b29c0-fa70-4feb-b07f-3755b522f8ce" />
 
 ### FAQ session
+### Normal question
 <img width="1187" height="396" alt="WhatsApp Image 2026-06-23 at 9 39 56 AM" src="https://github.com/user-attachments/assets/8c0b1c17-c729-4ba3-bbdb-7e158d27a7d0" />
+### Water related questions
+<img width="1502" height="661" alt="image" src="https://github.com/user-attachments/assets/3847b530-84e7-46e6-bd43-bf03919660b5" />
 
 ### demo video
 
